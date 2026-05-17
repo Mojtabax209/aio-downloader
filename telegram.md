@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:22
+---
+
+## VahidOOnLine — post 240695
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240695_1779047569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمدرضا رادان، فرمانده نیروی انتظامی، اعلام کرد که این نیرو ۶ هزار و ۵۰۰ نفر شهروند را از ابتدای جنگ بازداشت کرده است.
+
+رادان این افراد را «وطن‌فروشان و جواسیس» نامید؛ اتهام‌هایی که وکلای دادگستری و نهادهای حقوق بشری می‌گویند جمهوری اسلامی برای سرکوب مردم از آنها استفاده می‌کند.
+
+‌فرمانده فراجا همچنین گفت که بازداشت‌ها در ارتباط با اعتراضات دی ماه همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید: ترامپ و رئیس جمهور چین به توافق رسیدند که ایران نباید به سلاح هسته‌ای دست یابد و توافق کردند هیچ کشوری نباید برای تنگه هرمز عوارض دریافت کند
+@withyashar
+</div>
+
+## kianmeli1 — post 87455
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87455_1779047570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن رضایی: محاصرهٔ دریایی آمریکا را می‌شکنیم
+
+صبر ما حدی دارد و نیروهای مسلح درحال آماده‌کردن خودش است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337684
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337684_1779047571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمدرضا رادان، فرمانده نیروی انتظامی، اعلام کرد که این نیرو ۶ هزار و ۵۰۰ نفر شهروند را از ابتدای جنگ بازداشت کرده است.
+
+رادان این افراد را «وطن‌فروشان و جواسیس» نامید؛ اتهام‌هایی که وکلای دادگستری و نهادهای حقوق بشری می‌گویند جمهوری اسلامی برای سرکوب مردم از آنها استفاده می‌کند.
+
+‌فرمانده فراجا همچنین گفت که بازداشت‌ها در ارتباط با اعتراضات دی ماه همچنان ادامه دارد.
+https://iranintl.com/202605176516
+</div>
+
+## FarsiVOA — post 218001
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218001_1779047572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محمد قائدی در برنامه تفسیر خبر: جمهوری اسلامی می‌کوشد پرونده جنگ را به پرونده بازسازی پیوند بزند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فروپاشی قدرت خرید در ایران؛ گرانی، بیکاری کمبود دارو و مسکن و سقوط طبقه متوسط
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کشته شدن چندین نفر در لبنان و غزه در حملات هوایی
+
+🔻وزارت بهداشت لبنان می‌گوید که در اثر حملات هوایی روز یکشنبه اسرائیل به مناطقی در جنوب این کشور پنج نفر از جمله دو کودک کشته شدند. در این حملات تعدادی هم مجروح شدند.
+
+گزارش‌ها و تصاویر حاکی از بلند شدن دود سیاه رنگ از محل‌هایی است که هدف قرار گرفته است.
+
+از غزه هم گزارش شده که مقامات بهداشتی می‌گویند که پنج نفر در حملات اسرائیل به این باریکه کشته شدند. بر اساس این گزارش سه نفر در حمله هوایی به یک آشپزخانه عمومی در نزدیکی بیمارستان الاقصی در مرکز غزه کشته شدند.
+
+تحلیلگران می‌گویند که اسرائیل از زمان آتش‌بس با ایران،‌ طی هفته‌های اخیر حملات خود را به غزه افزایش داده است.
+
+ارتش اسرائیل درباره حملات اخیر در لبنان و غزه اظهارنظری نکرده است.
+
+https://bbc.in/4dhWi0J
+@BBCPersian
+</div>
+
+## alonews — post 120679
+
+<div align="center">
+  <a href="telegram/content/alonews_120679_1779047572.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایندیپندنت: ایران می‌تواند پس از شکست عملیات «خشم حماسی» آمریکا در از بین بردن موشک‌هایش، ماه‌ها به جنگ با آمریکا ادامه دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120678
+
+<div align="center">
+  <a href="telegram/content/alonews_120678_1779047573.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرواز جنگنده‌های اسرائیلی در آسمان درعا سوریه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120677
+
+<div align="center">
+  <a href="telegram/content/alonews_120677_1779047573.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی قلهکی: وزیر کشور پاکستان هم آمده بگه یا توافق کنید (با شرایط فعلی یعنی تسلیم) یا جنگ می‌شود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 23:12
 ---
 
