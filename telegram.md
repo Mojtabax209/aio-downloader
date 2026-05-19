@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 22:13
+---
+
+## VahidOOnLine — post 241029
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241029_1779216200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت در گفتگو با خبرنگاران اعلام کرد: «فکر می‌کنم ما در حال حاضر فرصتی داریم تا رابطه‌ای را که طی ۴۷ سال گذشته بین ایران و ایالات متحده وجود داشته است، بازتنظیم کنیم.»
+
+معاون رئیس‌جمهوری آمریکا که در نبود کارولین لویت، سخنگوی کاخ سفید، مسئولیت نشست خبری روزانه را بر عهده داشت، در ادامه افزود: «این همان چیزی است که رئیس‌جمهوری از ما خواسته و ما به تلاش در این مسیر ادامه خواهیم داد. اما برای این کار، همراهی هر دو طرف لازم است (یک دست صدا ندارد).»
+
+ونس با تبیین خطوط قرمز واشنگتن تاکید کرد: «ما به توافقی که به ایرانی‌ها اجازه دسترسی به سلاح هسته‌ای را بدهد، تن نخواهیم داد. بنابراین، همان‌طور که رئیس‌جمهوری ترامپ به من گفت، ما در حالت آماده‌باش کامل نظامی هستیم. ما تمایلی به پیمودن این مسیر [از سرگیری جنگ] نداریم، اما اگر مجبور شویم، رئیس‌جمهوری آمادگی و توانایی پیشبرد آن را دارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده: 88 کشتی را در جریان محاصره دریایی ایران مجبور به تغییر مسیر کردیم. @withyashar
+</div>
+
+## FoxNewsTwitter — post 341953
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341953_1779216200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Vice President Vance condemns religious violence, calling it "one of the most anti-Christian things and anti-American things that you could do."
+
+"A fundamental principle of all the great faiths is we are all children of God. And because of that, we are endowed by certain rights that are unique to our status as human beings."
+
+"You violate those rights, most importantly, when you commit violence against another person, you can violate them in other ways as well, but the most profound way to violate the fundamental right of human dignity is to commit violence."
+</div>
+
+## pm_afshaa — post 91061
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91061_1779216202.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال:
+نیرو دریایی آمریکا یه نفتکش مربوط به ایران رو توی اقیانوس هند توقیف کردن.
+
+اسم نفتکش هم اسکای‌ویو هست که قبلاً آمریکا بخاطر اینکه نفت ایران حمل میکرد تحریمش کرده بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91060
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91060_1779216203.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: پس از اظهارات ترامپ درباره توقف حمله برنامه‌ریزی‌شده علیه جمهوری اسلامی، سطح تنش‌ها افزایش یافته و ارتش اسرائیل آماده‌باش کامل اعلام کرده.
+
+طبق این گزارش، مقام‌های اسرائیلی تنها دقایقی پیش از اعلام عمومی ترامپ در جریان تصمیم اون قرار گرفتن و نیروی هوایی اسرائیل خودش برای احتمال حمله در روزهای آینده آماده میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴ترامپ: برآورد ما این است که ۸۲ درصد از موشک‌هایشان از بین رفته است. توانایی آن‌ها برای تولید دوباره هم الان بسیار کم شده است. در مورد پهپادها هم همین‌طور است؛ بخش عمده‌ای از توانشان از بین رفته، هرچند هنوز مقدار کمی ظرفیت دارند، اما خیلی ناچیز است. رییس‌جمهور چین هم به من قول داده که هیچ سلاحی به تهران ارسال نمی‌کند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴وال‌استریت‌ژورنال گزارش داد ایالات متحده یک نفتکش مرتبط با ایران را در اقیانوس هند توقیف کرده است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337980
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337980_1779216203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.31 released
+
+• Fix a Full mode pipeline regression introduced after v1.9.28 where idle sessions could generate too many empty polls and burn quota across multi-deployment setups
+• Make Full mode data flow steadier
+• Change the block_stun default to false, so STUN/TURN traffic is allowed by default; set `block_stun
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.31 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1931
+</div>
+
+## FarsiVOA — post 218153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با عرفان نوربخش به تحرکات تازه دیپلماتیک و امنیتی در منطقه - از نقش میانجی‌گرانه ترکیه و قطر و پاکستان تا ائتلاف‌سازی عربستان، امارات و بحرین - پرداختیم و پرسیدیم آیا خاورمیانه در ائتلاف نوشته یا نانوشته با اسرائیل در آستانه ورود به نظمی نوین بدون جمهوری اسلامی قرار دارد؟
+</div>
+
+## FarsiVOA — post 218152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با رضا علیجانی به تعویق کوتاه‌مدت حمله آمریکا و تکرار شروط ردشده جمهوری اسلامی برای پایان جنگ با آمریکا پرداختیم و پرسیدیم چرا حکومت ایران درست در آستانه یک رویارویی تمام‌عیار، همچنان بر پذیرش شروطی که واشنگتن بارها آنها رد کرده و غیرقابل قبول دانسته است، پافشاری می‌کند.
+</div>
+
+## DW_Farsi — post 124900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جنگ ایران؛ فراگیر شدن سلاح‌های لیزری ضدپهپاد در خلیج فارس
+
+🔺یادداشتی از کاترین شائر
+
+هفته گذشته، علاقه‌مندان و رصدکنندگان آنلاین تسلیحات، آنچه را که به نظر می‌رسید یک سامانه لیزری ساخت چین باشد، در فرودگاه دبی در امارات متحده عربی شناسایی کردند. این سامانه‌های لیزری بر روی خودروهایی نصب می‌شوند و قرار است توانایی سرنگونی پهپادها را داشته باشند.
+
+هم‌اکنون نیز یک سامانه لیزری ساخت اسرائیل به نام "پرتو آهنین" در امارات وجود دارد؛ سامانه‌ای که ظاهراً اسرائیل آن را به اماراتی‌ها قرض داده است. گزارش‌های دیگری نیز حاکی از آن است که امارات در تلاش برای خرید یک سلاح لیزری ساخت آمریکاست. افزون بر این، امارات توافق‌هایی را با شرکت‌های اروپایی و آمریکایی برای توسعه مشترک سلاح‌های لیزری خود امضا کرده است.
+
+در اواخر سال ۲۰۲۵ یک شرکت حمل‌ونقل، تصاویری از تجهیزات نظامی در حال انتقال منتشر کرد و ناخواسته فاش ساخت که عمان نیز یکی دیگر از خریداران سلاح‌های لیزری ساخت چین است.
+
+همچنین قطر، پس از حمله اسرائیل به پایتختش در سپتامبر سال گذشته، ظاهراً در حال بررسی خرید عناصری از سامانه دفاع هوایی ترکیه موسوم به "گنبد فولادی" است که سلاح‌های لیزری نیز بخشی از آن را تشکیل می‌دهند.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 281524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقداری از خاک مزار سه شخصیت تأثیرگذار تاریخ تاجیکستان در دهه‌های ۲۰و ۳۰ میلادی که در پایه‌گذاری این جمهوری و بقای آن نقش کلیدی داشتند از مسکو به دوشنبه پایتخت تاجیکستان منتقل شد و پس از مراسم یادبودی در آرامستان لوچاب خاکسپاری شد.
+
+سراج‌الدین مهرالدین دیروز در جریان یک مراسم با حضور مقام‌های روس کپسول حاوی خاک این سه نفر را تحویل گرفت و به تاجیکستان منتقل کرد. رئیس‌جمهور تاجیکستان در فرودگاه شهر دوشنبه به این سه شخصیت ادای احترام کرد.
+
+این سه نفر شیرین‌شاه شاه تیمور، نصرت‌الله مخسوم و نصار محمد هستند که در تاجیکستان «قهرمانان و جان‌نثاران و فرزندان نامدار ملت» ‌خوانده می‌شوند و در دوران حکومت استالین در سال ۱۹۳۷ به اتهام «دشمنی با خلق» محاکمه و اعدام شدند و در آرامگاه دونسکوی مسکو دفن شدند. پس از مرگ استالین، پرونده‌های بسیاری از اعدام‌شدگان از جمله این سه چهره سیاسی بازبینی و آنان تبرئه شدند.
+
+به گفته وزارت خارجه تاجیکستان، این انتقال با دستور امامعلی رحمان انجام شد و آن را «رویدادی مهم در مسیر برقراری عدالت تاریخی و حفظ و ارج‌گذاری به خاطرهٔ ملی» خواند.
+📷Tajik President Press Service
+@BBCPersian
+</div>
+
+## alonews — post 121169
+
+<div align="center">
+  <a href="telegram/content/alonews_121169_1779216204.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش wsj ، ایالات متحده یک نفتکش تحریم شده مرتبط با ایران را در اقیانوس هند در طول شب توقیف کرد.
+
+
+🔴این کشتی احتمالا در ماه فوریه با بیش از یک میلیون بشکه نفت خام در جزیره خارگ ایران بارگیری شده است.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121168
+
+<div align="center">
+  <a href="telegram/content/alonews_121168_1779216204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس : این جنگ ابدی نیست، ما کارها رو انجام می‌دیم و به خونه برمیگردیم
+- این همون چیزیه که ترامپ وعده داده بود و همون چیزیه که او به اون عمل میکنه...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 22:03
 ---
 
