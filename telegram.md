@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 01:23
+---
+
+## WithYashar — post 11706
+
+
+
+
+## WithYashar — post 11705
+
+
+
+
+## FoxNewsTwitter — post 341965
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341965_1779227597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Acting AG Todd Blanche signed an order Tuesday barring the IRS from examining President Trump’s prior tax returns and blocking the agency from pursuing pending claims against Trump, his family or his businesses.
+</div>
+
+## pm_afshaa — post 91071
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91071_1779227597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴میانجی‌های منطقه‌ای و مقامات آمریکایی:
+موضع ایران در مذاکرات با آمریکا عمدتاً بدون تغییر نسبت به پیشنهادات قبلی باقی مانده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338011
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338011_1779227598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری ایالات متحده سه‌شنبه ۲۹ اردیبهشت در بیانیه‌ای از اعمال تحریم‌های جدید علیه «صرافی امین» مستقر در ایران با نام دیگر «ابراهیمی و شرکا» و شبکه‌ای از شرکت‌های پوششی در چند کشور خبر داد.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## FarsiVOA — post 218188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس: پیشرفت‌های بسیاری در گفت‌وگو با جمهوری‌ اسلامی داشته‌ایم
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 01:13
 ---
 
