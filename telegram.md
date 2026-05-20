@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 19:44
+---
+
+## VahidOOnLine — post 241175
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241175_1779293674.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۳۰ اردیبهشت پیش از سفر به کانتیکت، در پاسخ به پرسشی درباره میزان هماهنگی با بنیامین نتانیاهو پیرامون حمله به ایران گفت: «او هر کاری که من از او بخواهم انجام خواهد داد. ما درباره ایران کاملا هم‌نظر هستیم.»
+
+ترامپ با انتقاد از نحوه برخوردها با نتانیاهو در اسرائیل، او را یک «نخست‌وزیر دوران جنگ» نامید و اسحاق هرتزوگ، رئیس‌جمهوری اسرائیل را به «بدرفتاری» با نتانیاهو متهم کرد.
+
+رئیس‌جمهوری آمریکا در ادامه به شوخی، به نظرسنجی‌های محبوبیتش در اسرائیل اشاره کرد و افزود: «محبوبیت من در اسرائیل ۹۹ درصد است و حتی می‌توانم نامزد نخست‌وزیری شوم؛ پس شاید بعد از پایان کارم در آمریکا، به اسرائیل بروم و آنجا نامزد شوم!»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241174
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241174_1779293676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال با اشاره به دوگانگی شیوه زندگی و سخنان مسئولان جمهوری اسلامی می‌گوید: «من هم یک زندگی معمولی می‌خواهم اما مادرم معصومه ابتکار نیست.» پیام مخاطب با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : امشب میخوام یه تحلیل سنگین کنم با طعم پیشبینی ، خواهیم دید چه خواهد شد !
+</div>
+
+## WithYashar — post 11765
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11765_1779293677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ برای هزارمین باز: همه چیز از بین رفته تو ایران
+تنها سوال من اینه که آیا ما میریم و کار رو تمام می‌کنیم؟ ، یا اونا قراره سندیو امضا کنن؟ خواهیم دید چه خواهد شد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342002
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342002_1779293679.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump jokes about all of the people who have asked him to get their children into the U.S. Coast Guard Academy over the years but weren't up to snuff.
+
+“I had so many people, ‘Sir, could you get my son? He wants to go to the Coast Guard Academy.’ And I look at the son and I say, ‘He's not going to make it.’ I lost a lot of friends. I lost a lot of friends."
+
+"But every once in a while, I'll call up with somebody outstanding. And they'll generally take care. If they don't take care, they're fired. So, you know, they have no choice."
+</div>
+
+## FoxNewsTwitter — post 342001
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342001_1779293680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPENING NOW: President Trump praises the bravery of the United States Coast Guard as he delivers the commencement speech at the Coast Guard Academy:
+
+"This is the unbelievable heroism and exceptional selflessness that lives in the soul of every single cadet on this field, every single one of you."
+
+"You've all been tested. You'll be tested further and probably at higher levels as your career goes on."
+
+"You're America's first defenders. You are America's first responders. You are the living standard bearers of America's First Fleet. As your commander-in-chief, I could not be prouder of the great class of 2026."
+</div>
+
+## FoxNewsTwitter — post 342000
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342000_1779293682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump honors the "exceptional" team of professors, coaches, and military professionals at the Coast Guard Academy, calling on the graduating class to recognize their mentors.
+
+"Over the past four years, this class has been mentioned by an exceptional team of professors and coaches and military professionals who have shaped you into leaders."
+
+"So let's give a big round of applause to the entire faculty and staff that made this possible."
+</div>
+
+## IranIntlTV — post 338108
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338108_1779293683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «تنها سوال درباره ایران این است که آیا ما کار را تمام می‌کنیم یا آن‌ها سند را امضا می‌کنند.»
+او پیش‌تر نیز درباره توافق با جمهوری اسلامی و موضوع تنگه هرمز گفت: «ما یک فرصت به این موضوع می‌دهیم. عجله‌ای ندارم. نمی‌خواهم افراد زیادی کشته شوند؛ ترجیح می‌دهم تعداد کمی کشته شوند.»
+https://iranintl.com/202605203059
+</div>
+
+## IranIntlTV — post 338107
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338107_1779293684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال با اشاره به دوگانگی شیوه زندگی و سخنان مسئولان جمهوری اسلامی می‌گوید: «من هم یک زندگی معمولی می‌خواهم اما مادرم معصومه ابتکار نیست.» پیام مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## RadioFarda — post 157394
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157394" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در این کافه فردا به آموزش استفاده از اسلحه در صدا و سیما، تبریک روز ارتباطات توسط پزشکیان در دوران قطعی اینترنت در ایران، تحلیل‌های یک کارشناس صدا و سیما در مورد یک عکس ساخته شده توسط هوش مصنوعی و تغییرات پیش رو در روند پذیرش فیلم‌ها در اسکار می‌پردازیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## Dirty_Kids — post 389817
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389817_1779293685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+الان ایران نیروی دریایی، نیروی هوایی و همه چیزشو از دست داده تقریبا.
+تنها سوال اینه که بریم کار رو تموم کنیم یا توافق رو امضا میکنن؟
+ببینیم چه اتفاقی میفته.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389816
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389816_1779293687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای آهنگ "Delalım" توسط ایلکا حسابی سر و صدا به پا کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121356
+
+<div align="center">
+  <a href="telegram/content/alonews_121356_1779293688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : برای موفقیت هیچ وقت احساس گناه نکن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121355
+
+<div align="center">
+  <a href="telegram/content/alonews_121355_1779293690.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈افراد مسلح در خودرویی به سمت یک خودروی پلیس در جاده‌ای در شهرستان سراوان در جنوب شرق ایران تیراندازی کردند که منجر به کشته شدن یک افسر پلیس شد، گزارش تسنیم.
+
+
+🔴 عملیات امنیتی و انتظامی در منطقه در جریان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 19:33
 ---
 
