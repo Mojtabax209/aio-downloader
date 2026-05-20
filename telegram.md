@@ -7,6 +7,272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 19:33
+---
+
+## VahidOOnLine — post 241173
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241173_1779293028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه عربستان از تصمیم ترامپ برای تعویق حمله به ایران استقبال کرد.
+
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، در پیامی در شبکه اکس نوشت کشورش از تصمیم دونالد ترامپ برای دادن زمان بیشتر به مذاکرات با تهران استقبال می‌کند و ریاض از «فرصت دادن به دیپلماسی» برای پایان جنگ و بازگرداندن امنیت و آزادی کشتیرانی در تنگه هرمز حمایت می‌کند.
+
+بن فرحان همچنین از جمهوری اسلامی خواست «فوراً» به تلاش‌ها برای پیشبرد مذاکرات و دستیابی به توافقی جامع پاسخ دهد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241172
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241172_1779293029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار خودروی متعلق به سازمان حمل‌ونقل نیویورک در نزدیکی وال‌استریت، باعث وحشت و فرار عابران شد.
+
+ویدیوهای منتشرشده نشان می‌دهد این خودرو پس از آتش‌گرفتن، مقابل ساختمان مرکزی «ام‌تی‌ای» در منهتن به گلوله‌ای از آتش تبدیل شد.
+
+آتش‌نشانی نیویورک اعلام کرد این حادثه تلفاتی نداشته و علت آن در دست بررسی است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241171
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241171_1779293031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، گفت کشورهای منطقه به همان اندازه مهلتی که ترامپ برای حمله بعدی تعیین کرده، فرصت دارند نیروهای آمریکایی را به‌طور دائم اخراج کنند و بعدا گلایه‌ای نداشته باشند.
+
+رضایی افزود برنامه جمهوری اسلامی برای «ورشکستگی سیاسی و اقتصادی» ترامپ، از مسیر برخی کشورهای منطقه دنبال می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241170
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241170_1779293032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نخست‌وزیر هند و بازی با کلمات؛
+مودی به ملونی، شیرینی «ملودی» داد
+
+♦️نارندرا مودی، نخست‌وزیر هند، در جریان سفر رسمی خود به ایتالیا با جورجیا ملونی، نخست‌وزیر این کشور، در مجموعه تاریخی «ویلا دوریا پامفیلی» در رم دیدار و گفتگو کرد، دیداری که علاوه بر مباحث سیاسی و اقتصادی، با لحظه‌ای صمیمی و شوخی جالب مودی نیز همراه شد.
+در جریان این دیدار، مودی بسته‌ای از شیرینی هندی «ملودی» (تافی، نرم‌نبات) را به جورجیا ملونی هدیه داد و با اشاره به شباهت نام این شیرینی با نام خانوادگی نخست‌وزیر ایتالیا، با او شوخی کرد.
+نخست‌وزیر ایتالیا نیز ویدیوی این لحظه را در شبکه‌های اجتماعی منتشر کرد و از هدیه مودی قدردانی کرد.
+این سفر، نخستین سفر رسمی یک نخست‌وزیر هند به ایتالیا طی ۲۶ سال گذشته با هدف دیدار دوجانبه رهبران دو کشور محسوب می‌شود.
+گسترش همکاری‌های اقتصادی، فناوری، انرژی و امنیتی از مهم‌ترین محورهای گفتگو میان رم و دهلی‌نو عنوان شده است.
+مودی در پایان تور اروپایی خود به ایتالیا سفر کرده و پیش از این نیز برای نشست گروه ۲۰ در سال ۲۰۲۱ و اجلاس گروه ۷ در سال ۲۰۲۴ به این کشور رفته بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دموکرات‌های مجلس نمایندگان آمریکا از مارکو روبیو، وزیر امور خارجه، خواسته‌اند راهبرد پشت آنچه «شکاف‌های بی‌سابقه» در کمک‌های اروپایی می‌نامند را توضیح دهد. آن‌ها هشدار داده‌اند که تعطیل شدن آژانس توسعه بین‌المللی آمریکا (USAID) و اخراج‌های گسترده، متحدان آسیب‌پذیر را در برابر نفوذ روسیه بی‌دفاع گذاشته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9356
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9356_1779293034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇫🇷ناو هواپیمابر فرانسوی Charles de Gaulle (R91) در حال حاضر در جنوب عمان، در دریای عرب در حال حرکت است؛ این ناو چند روز پیش از خلیج عدن عبور کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341999
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341999_1779293035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump kicks off his historic commencement speech at the Coast Guard Academy by congratulating the class of 2026.
+
+"It's a true honor to be here and this magnificent day and one of the most prestigious military academies anywhere in the world."
+
+"I'm thrilled to become the first president to ever give a second keynote address to this storied institution. I am very proud of that honor. We'll have to try it a third time."
+</div>
+
+## FoxNewsTwitter — post 341998
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341998_1779293038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump receives a grand entrance at the U.S. Coast Guard Academy in New London ahead of delivering the commencement address.
+</div>
+
+## IranIntlTV — post 338106
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338106_1779293041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، گفت کشورهای منطقه به همان اندازه مهلتی که ترامپ برای حمله بعدی تعیین کرده، فرصت دارند نیروهای آمریکایی را به‌طور دائم اخراج کنند و بعدا گلایه‌ای نداشته باشند.
+
+رضایی افزود برنامه جمهوری اسلامی برای «ورشکستگی سیاسی و اقتصادی» ترامپ، از مسیر برخی کشورهای منطقه دنبال می‌شود.
+https://iranintl.com/202605208322
+</div>
+
+## ManotoTV — post 105691
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105691_1779293042.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه عربستان از تصمیم ترامپ برای تعویق حمله به ایران استقبال کرد.
+
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، در پیامی در شبکه اکس نوشت کشورش از تصمیم دونالد ترامپ برای دادن زمان بیشتر به مذاکرات با تهران استقبال می‌کند و ریاض از «فرصت دادن به دیپلماسی» برای پایان جنگ و بازگرداندن امنیت و آزادی کشتیرانی در تنگه هرمز حمایت می‌کند.
+
+بن فرحان همچنین از جمهوری اسلامی خواست «فوراً» به تلاش‌ها برای پیشبرد مذاکرات و دستیابی به توافقی جامع پاسخ دهد.
+</div>
+
+## ManotoTV — post 105690
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105690_1779293043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار خودروی متعلق به سازمان حمل‌ونقل نیویورک در نزدیکی وال‌استریت، باعث وحشت و فرار عابران شد.
+
+ویدیوهای منتشرشده نشان می‌دهد این خودرو پس از آتش‌گرفتن، مقابل ساختمان مرکزی «ام‌تی‌ای» در منهتن به گلوله‌ای از آتش تبدیل شد.
+
+آتش‌نشانی نیویورک اعلام کرد این حادثه تلفاتی نداشته و علت آن در دست بررسی است.
+</div>
+
+## Persian_Trend_Official — post 14534
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14534_1779293045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خداروشکر دارن توافق میکنن 😄 درجریانید که ... دلمون برای توافق های پر هیجان عراقچی با ویتکاف تنگ شده ! از توجه شما به این موضوع متشکرم الیاس فرخ
+</div>
+
+## Dirty_Kids — post 389815
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389815_1779293046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G30
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## manototv — post 105691
+
+<div align="center">
+  <a href="telegram/content/manototv_105691_1779293047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه عربستان از تصمیم ترامپ برای تعویق حمله به ایران استقبال کرد.
+
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، در پیامی در شبکه اکس نوشت کشورش از تصمیم دونالد ترامپ برای دادن زمان بیشتر به مذاکرات با تهران استقبال می‌کند و ریاض از «فرصت دادن به دیپلماسی» برای پایان جنگ و بازگرداندن امنیت و آزادی کشتیرانی در تنگه هرمز حمایت می‌کند.
+
+بن فرحان همچنین از جمهوری اسلامی خواست «فوراً» به تلاش‌ها برای پیشبرد مذاکرات و دستیابی به توافقی جامع پاسخ دهد.
+</div>
+
+## manototv — post 105690
+
+<div align="center">
+  <a href="telegram/content/manototv_105690_1779293048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار خودروی متعلق به سازمان حمل‌ونقل نیویورک در نزدیکی وال‌استریت، باعث وحشت و فرار عابران شد.
+
+ویدیوهای منتشرشده نشان می‌دهد این خودرو پس از آتش‌گرفتن، مقابل ساختمان مرکزی «ام‌تی‌ای» در منهتن به گلوله‌ای از آتش تبدیل شد.
+
+آتش‌نشانی نیویورک اعلام کرد این حادثه تلفاتی نداشته و علت آن در دست بررسی است.
+</div>
+
+## alonews — post 121354
+
+<div align="center">
+  <a href="telegram/content/alonews_121354_1779293050.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: همه چیز از بین رفته است.
+
+
+🔴تنها سوال این است که آیا ما می‌رویم و کار را تمام می‌کنیم، یا آنها قرار است سندی را امضا کنند؟ ببینیم چه پیش می‌آید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121353
+
+<div align="center">
+  <a href="telegram/content/alonews_121353_1779293053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر خارجه روسیه: مسکو آماده است برای مذاکرات بین ایران و آمریکا «دست یاری» دراز کند، اما قصد ندارد خدمات خود را تحمیل کند
+
+
+🔴 سرگئی ریابکوف، معاون وزیر امور خارجه روسیه، می‌گوید مسکو در صورت لزوم آماده است برای مذاکرات بین ایران و آمریکا «دست یاری» دراز کند، اما قصد ندارد خدمات خود را تحمیل نماید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121352
+
+<div align="center">
+  <a href="telegram/content/alonews_121352_1779293053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بن‌گیور، وزیر امنیت ملی اسرائیل، از فعالان بازداشت‌شده در کاروان جهانی صمود غزه در بندر آشدود بازدید کرد. 
+🔴به اسرائیل خوش آمدید، ما اینجا در کنترل هستیم. این همان چیزی است که باید باشد. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 19:23
 ---
 
